@@ -1,4 +1,4 @@
-# 
+# Get the ultimate CapCut for macOS filter with professional CapCut for macOS Filter | cloud-sync + lens-flare. Featuring cloud-sync and lens-flare, it's the best choice for macOS
 
 
 
